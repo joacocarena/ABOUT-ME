@@ -5,8 +5,8 @@ de forma fluida (certificado internacional nivel B2). También cuento con la cap
 desiciones de manera técnica.
 - Interesado en trabajar para empresas de Norteamérica/Europa y ponerme a prueba día a día.
 - Me podes contactar por:
-INSTAGRAM: @joacocarena
-E-MAIL: joaquincarena5@gmail.com
+-INSTAGRAM: @joacocarena
+-E-MAIL: joaquincarena5@gmail.com
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 - Hi! my name is Joaquin Nicolas Carena and I'm from Argentina.
 - Since I've memory, I love technology and how it progresses, this is why I'm here.
@@ -14,5 +14,5 @@ E-MAIL: joaquincarena5@gmail.com
 able to learn and test my knowledges in a practical way and take decisions in a technical way too.
 - I'm interested in working for an English/US/European company and test me everyday.
 - Contact me in:
-INSTAGRAM: @joacocarena
-E-MAIL: joaquincarena5@gmail.com
+-INSTAGRAM: @joacocarena
+-E-MAIL: joaquincarena5@gmail.com
